@@ -1,2 +1,0 @@
-# mohkarto.githu.io
-hallo
